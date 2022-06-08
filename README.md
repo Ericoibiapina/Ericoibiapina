@@ -1,1 +1,1 @@
-I wnat to learn.
+I want to learn.
